@@ -1,2 +1,2 @@
-# log_any_time.github.io
-log anything for what you want.
+# xxszkj123's blog
+log your beauty
